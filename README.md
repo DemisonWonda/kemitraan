@@ -1,2 +1,2 @@
-# kemitraan
+# kolaborasi
 ✅🚀
